@@ -1,1 +1,0 @@
-# rahmapoint_test1
